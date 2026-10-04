@@ -1,4 +1,4 @@
 # mojie
 2026年 便宜机场 低价机场 划算机场 平价机场 性价比机场 机场评测 科学上网 梯子 机场节点订阅 Clash V2ray Mihomo V2rayN Singbox Shadowrocket Surge
-
+不限时间机场，永久使用节点，点击以下链接
 https://mojie.me/#/register?code=QFIvSN9h
